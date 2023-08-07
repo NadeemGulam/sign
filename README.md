@@ -1,0 +1,11 @@
+# "Hello Neha" in ASL
+![signs](https://github.com/NadeemGulam/sign/assets/68492875/d0cf4ab6-a817-4d6a-ac35-16e251b9e561)
+![H](https://github.com/NadeemGulam/sign/assets/68492875/13172024-f26c-4c95-b901-d17a818f6d5d)
+![E](https://github.com/NadeemGulam/sign/assets/68492875/547b292c-da73-4e81-9d62-24c49da58b09)
+![L](https://github.com/NadeemGulam/sign/assets/68492875/c1a1723b-c6fa-492b-8a9f-c79b055a2604)
+![L](https://github.com/NadeemGulam/sign/assets/68492875/864c39be-e0db-48f6-9183-9e2c2c0901e1)
+![O](https://github.com/NadeemGulam/sign/assets/68492875/2930b01d-637a-4c73-bc30-b3a81b9c9682)
+![NEHA (N)](https://github.com/NadeemGulam/sign/assets/68492875/9c470a8e-5312-4f34-aa82-0d94e372ddfc)
+![NEHA (E)](https://github.com/NadeemGulam/sign/assets/68492875/8d94e71c-18c0-4181-9581-d3bf0947eed2)
+![NEHA (H)](https://github.com/NadeemGulam/sign/assets/68492875/253ba9d2-6716-4936-85f6-2fee29f32d10)
+![NEHA (A)](https://github.com/NadeemGulam/sign/assets/68492875/882086b0-6349-4876-a390-a643304a58c9)
